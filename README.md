@@ -23,4 +23,4 @@
 <br>
 
 ---
-[E-mail de contato](halisson.piovezana@aluno.ufop.edu.br)
+✉️ [E-mail de contato](halisson.piovezana@aluno.ufop.edu.br)
